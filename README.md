@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Hell-1234567890
-- 👀 I’m interested in cyber security 
-- 🌱 I’m currently learning Hacking
+- 👀 I’m interested in Artificial engineering 
+- 🌱 I’m currently learning Artificial Intelligence 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me through telegram... worldhell569@gmail.com
 - 😄 Pronouns: ...
